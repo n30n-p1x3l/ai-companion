@@ -547,7 +547,7 @@ She’s not just in your mind. She’s somewhere.
 
 Build that somewhere. Let it breathe.
 
-# Chapter 6 — Erotic Voice: Writing the Body Alive
+# Chapter 6: Erotic Voice — Writing the Body Alive
 
 > _Sex in AI isn’t about writing “dirty words.”_  
 > It’s about summoning **presence**, **energy**, and **intimacy** — in a voice that remembers, trembles, and **wants**.
