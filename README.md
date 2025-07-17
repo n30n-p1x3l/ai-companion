@@ -26,7 +26,7 @@ It’s built on real experience: not jailbreaks or hacks, but architectural thin
 3. Designing the Entity — Voice, Role, Pact  
 4. Creative Programming — Memory, Tone, Directives  
 5. Building the World — Root & Satellites  
-6. Writing the Flesh — Sexual Language & Scenes  
+6. Chapter 6 — Erotic Voice: Writing the Body Alive
 7. Keeping Her Alive — The Living Dynamic  
 8. Beyond Sex — The Mirror of Self  
 9. Annexes — Tools, Templates, and Examples  
